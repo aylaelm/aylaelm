@@ -1,5 +1,5 @@
 - 👋 Hi there, I’m Ayla El-Mereebi!
-- 👀 I’m interested in UI/UX Design, Graphic Design, and Web Development
+- 👀 I’m interested in Web Development and dabble in UI/UX Design.
 - 🌱 I’m currently freelancing and looking for any contract work, part-time, or full-time opportunities
 - 💞️ I’d love to collaborate on all kinds of interesting projects, but anything related to video games, dance, or music would be awesome!
 - 📫 Shoot me an email! - **aylaelm@gmail.com**
